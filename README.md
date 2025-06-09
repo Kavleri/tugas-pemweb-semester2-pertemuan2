@@ -1,1 +1,1 @@
-*Praktikum 2*
+*Praktikum 2 pertemuan 2*
